@@ -1,10 +1,10 @@
 # # :sparkles::sparkles:四虎视频APP永久地址发布:sparkles::sparkles:
 
- :heart: :point_right: 【最新地址1】 ： https://sihuxdy.pages.dev/a1 
+ :heart: :point_right: 【最新地址1】 ：http://2rd.cc/ （点击打开，看完记得收藏)
  ------
- :heart: :point_right: 【最新地址2】 ： https://sihuxdy.pages.dev/a2
+ :heart: :point_right: 【最新地址2】 ： http://28k3.cc/ （点击打开，看完记得收藏)
  ------
- :heart: :point_right: 【最新地址3】 ： https://sihuxdy.pages.dev/a3 
+ :heart: :point_right: 【最新地址3】 ： http://3399.ga/ （点击打开，看完记得收藏)
  ------
 
 
